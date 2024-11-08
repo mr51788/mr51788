@@ -1,8 +1,8 @@
 ### 專長
-🎮 gaming
-🍞 baking
-🥕 cooking
-🧪 chemistry
+🎮 gaming \
+🍞 baking \
+🥕 cooking \
+🧪 chemistry \
 
 ### 經歷
 📖 Fu Jen Catholic University

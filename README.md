@@ -2,7 +2,7 @@
 🎮 gaming \
 🍞 baking \
 🥕 cooking \
-🧪 chemistry \
+🧪 chemistry
 
 ### 經歷
 📖 Fu Jen Catholic University
